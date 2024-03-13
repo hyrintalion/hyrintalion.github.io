@@ -1,5 +1,5 @@
 Hi there!
-My name is Anna.
+My name is Anna Razumova.
 
 Here is my blog for posting learn in public posts!
 
